@@ -1,5 +1,5 @@
 # 💫 About Me:
-SESI SENAI SJ<br>Desenvolvedor de Sistemas<br>22/01/2007<br>
+Cursando Ciencias da Computacao<br>Desenvolvedor de Sistemas<br>22/01/2007<br>
 
 
 ## 🌐 Socials:
